@@ -4,6 +4,7 @@
 - Sou estudante da alura;
 - Sou cristã;
 - Adoro fazer crochê.
+
 2 Timóteo 3:14
    "Tu, porém, permanece nas coisas que aprendeste, e de que foste inteirado, sabendo de quem as aprendeste;"
   
